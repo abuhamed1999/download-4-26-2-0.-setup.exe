@@ -1,1 +1,1 @@
-https://1drv.ms/f/s!Aj-937UHOGBKjAzMoLYC8qKVfEAu?e=chwbtK
+https://github.com/abuhamed1999/downloads-4.24.2-setup-msi
